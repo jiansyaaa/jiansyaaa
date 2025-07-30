@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **How to build AI and Data Science**
 
-- 📫 How to reach me **andimassanjaya1054@gmail.com**
+- 📫 How to reach me **jihanamandasiagian16@gmail.com**
 
 - ⚡ Fun fact **I Pro Player ML**
 
